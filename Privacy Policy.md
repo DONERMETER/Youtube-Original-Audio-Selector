@@ -1,6 +1,6 @@
 # Privacy Policy - YouTube Audio Selector
 
-Last updated: [Current Date]
+Last updated: 07.03.2025
 
 ## Data Collection
 
