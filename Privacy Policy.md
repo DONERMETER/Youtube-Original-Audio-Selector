@@ -17,4 +17,5 @@ The extension only:
 
 ## Contact
 
-If you have any questions about this privacy policy, you can contact me at [your-email]
+If you have any questions about this privacy policy, you can contact me at can.kozmos@gmail.com
+
